@@ -54,5 +54,6 @@ I’m always open to collaboration and new opportunities. If you have an interes
 
 ---
 
-> *"Code is like humor. When you have to explain it, it’s bad."* – Cory House
+> *"If You Can Dream"* 
+>  *"You Can Do It"* 
 
